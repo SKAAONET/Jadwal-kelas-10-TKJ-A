@@ -1,2 +1,2 @@
-# Jadwal-kelas-10-TKJ-A
+# Jadwal-kelas-10-TKJ-B
 Jadwal
